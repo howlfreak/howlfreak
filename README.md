@@ -3,4 +3,7 @@
 
 
 <p align="center">
-⠀ ⠀<a href="https://listography.com/6510021045">listography  </a>　　
+  <sup><sub> listography contains everything you need to know about me <sup><sub>
+⠀ 
+    
+⠀<a href="https://listography.com/6510021045">🅻ist❍gr♡phy  </a>　　
